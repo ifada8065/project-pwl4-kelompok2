@@ -1,1 +1,0 @@
-# web-spk-pemilihan-laptop
